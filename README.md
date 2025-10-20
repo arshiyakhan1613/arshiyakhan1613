@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **arshiya1613@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1onhZpHiYE9zUMN5a34yC6DJu4GkbzWs9/view](https://drive.google.com/file/d/1onhZpHiYE9zUMN5a34yC6DJu4GkbzWs9/view)
+- 📄 Know about my experiences  https://drive.google.com/file/d/1MCZmRkkOs8gbfAeyr4dyv3JnHTu-HZUH/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
